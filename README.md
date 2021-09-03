@@ -2,14 +2,14 @@
 
 Integrantes:	
  
-  Myriam Rocio Landazabal Cuervo	 myriamlandazabal@gmail.com
+  Myriam Rocio Landazabal Cuervo	 -----  myriamlandazabal@gmail.com
 
-  Ivan Dario Rosas Beltran	       ivanens26@hotmail.com
+  Ivan Dario Rosas Beltran	      ------- ivanens26@hotmail.com
 
-  Sergio Mauricio Moreno Quintero	 sergiomorenoq@gmail.com
+  Sergio Mauricio Moreno Quintero -----  sergiomorenoq@gmail.com
 
-  Marlon Martinez Manosalva	       marlonmartinez1992@gmail.com
+  Marlon Martinez Manosalva	   ------  marlonmartinez1992@gmail.com
 
-  Holber Sneyder Villa Zuluaga	 hsvillaz@unal.edu.co
+  Holber Sneyder Villa Zuluaga	------  hsvillaz@unal.edu.co
 
 
